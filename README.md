@@ -1,1 +1,1 @@
-# ClydeCard
+# ClydeCard is about transparency. ClydeCard is about narrative. Clydecard seeks to isolate the thing about computers that most resembles mankind's routine daily behavior. The dilemma situation. Choosing A or B. ClydeCard demonstrates how a decision tree made of paper can be as teasing and complex as any conveyed electronically. With some exaggeration, ClydeCard "proves that there is nothing really new about computers."
